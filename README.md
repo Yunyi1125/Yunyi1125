@@ -2,8 +2,8 @@
 
 **Tara** (*she/her*) 
 
-*  **UGroningen '27** | *Data Science and Society*  :3
-* **Tohoku U '26** |  *JYPE Exchange*
+*  **UGroningen '27** *Data Science and Society*  :3
+* **Tohoku U '26**   *JYPE Exchange*
 
 `China-Shanghai` ✦ `Netherlands` ✦ `Japan`
 
