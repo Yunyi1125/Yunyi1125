@@ -1,12 +1,10 @@
-## Hi Lovely People <3
+# Hi Lovely People <3
 
-**Tara** *she/her*
+**Tara** (*she/her*) 
 
-UGroningen 27' Data Science and Society :3
+*  **UGroningen '27** | *Data Science and Society*  :3
+* **Tohoku U '26** |  *JYPE Exchange*
 
-Tohoku U 26' JYPE exchange
+`China-Shanghai` ✦ `Netherlands` ✦ `Japan`
 
-China-Shanghai/Netherlands/Japan
-
-
-Contact me with: yypan2024@hotmail.com
+#### Get in Touch [ yypan2024@hotmail.com](mailto:yypan2024@hotmail.com)
